@@ -32,7 +32,13 @@ M'apassiona la veterinaria, els animals selvatges, la fotografía i el tenis.
 ## 📫 contacte
 [Email](marc.cases09@iesantpol.cat) 
 
-## ⚡ Fun fact: 
+## ✈️ Països on he anat de viatge
+- 🇮🇹 Italià
+- 🇵🇹 Portugal
+- 🇫🇷 França
+- 🇲🇨 Mónaco
+
+## ⚡ Fun facts: 
 
 - Tinc una deformitat molt rara a la mà dreta anomenada sindactilia complexa.
 - Un dels hobis que més m'apasiona és cuinar.
